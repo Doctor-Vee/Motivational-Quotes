@@ -4,7 +4,7 @@ This is my collection of motivational quotes extracted from motivational videos 
 ----------
 
 ## Evan CarMichael Series
-[3 Amazing Habits that the 1% use everyday](https://github.com/Victor-Chinewubeze/Motivational-Quotes/new/master#3-amazing-habits-that-the-1-use-everyday "3 Amazing Habits that the 1% use everyday")
+[3 Amazing Habits that the 1% use everyday](https://github.com/Victor-Chinewubeze/Motivational-Quotes/blob/master/ECM%20-%203%20Amazing%20Habits%20that%20The%201%25%20use%20everyday.md#3-amazing-habits-that-the-1-use-everyday "3 Amazing Habits that the 1% use everyday")
 
 
 ---
