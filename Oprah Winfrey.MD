@@ -1,4 +1,4 @@
-## Oprah Winfrey's Video
+## Oprah Winfrey's MasterClass
 
 In this world, there are a lot of things that are beyond our control, but what you do have control over is how you react to whatever happens in your life.
 What I now know is that we all become exactly what we believe.
