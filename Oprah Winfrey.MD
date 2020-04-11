@@ -27,7 +27,7 @@ You gotta take responsibility for the space you hold here.
 How far you are from the connection to Source Energy, That which created you is how out of sync you are with your life. 
 When you can align with that, nobody can touch you.
 
-**When your personality comes to serve the energy of your soul, that is authentic power.** - *(Excerpt from Seat of the soul by Gary Zukav)*
+**When your personality comes to serve the energy of your soul, that is authentic power.** - *(Excerpt from Seat of the soul by **Gary Zukav**)*
 
 What is real and what is lasting is who you are and what you were meant to bring
 
