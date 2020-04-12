@@ -4,6 +4,7 @@ This is my collection of motivational quotes extracted from motivational videos 
 ----------
 
 ## Evan CarMichael Series
+[Template to follow](https://github.com/Victor-Chinewubeze/Motivational-Quotes/blob/master/ECM%20-%2001%20Template.md#evan-carmichael-series "Template to follow")  
 [3 Amazing Habits that the 1% use everyday](https://github.com/Victor-Chinewubeze/Motivational-Quotes/blob/master/ECM%20-%203%20Amazing%20Habits%20that%20The%201%25%20use%20everyday.md#3-amazing-habits-that-the-1-use-everyday "3 Amazing Habits that the 1% use everyday")
 
 
@@ -11,6 +12,5 @@ This is my collection of motivational quotes extracted from motivational videos 
 
 ## Others
 
-[Do not fear failure but please be terrified of regret - Deshauna Barber](https://github.com/Victor-Chinewubeze/Motivational-Quotes/blob/master/Deshauna%20Barber.MD#deshauna-barbers-speech "Do not fear failure but please be terrified of regret - Deshauna Barber")
-
+[Do not fear failure but please be terrified of regret - Deshauna Barber](https://github.com/Victor-Chinewubeze/Motivational-Quotes/blob/master/Deshauna%20Barber.MD#deshauna-barbers-speech "Do not fear failure but please be terrified of regret - Deshauna Barber")  
 [Oprah Winfrey's MasterClass](https://github.com/Victor-Chinewubeze/Motivational-Quotes/blob/master/Oprah%20Winfrey.MD#oprah-winfreys-masterclass "Oprah Winfrey's MasterClass")
