@@ -29,6 +29,6 @@ When you can align with that, nobody can touch you.
 
 **When your personality comes to serve the energy of your soul, that is authentic power.** - *(Excerpt from Seat of the soul by **Gary Zukav**)*
 
-What is real and what is lasting is who you are and what you were meant to bring
+What is real and what is lasting is who you are and what you were meant to bring.
 
 **- Oprah Winfrey**
