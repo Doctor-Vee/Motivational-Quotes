@@ -13,5 +13,5 @@ This is my collection of motivational quotes extracted from motivational videos 
 
 ## Others
 
-[Do not fear failure but please be terrified of regret - Deshauna Barber](https://github.com/Victor-Chinewubeze/Motivational-Quotes/blob/master/Deshauna%20Barber.MD#deshauna-barbers-speech "Do not fear failure but please be terrified of regret - Deshauna Barber")  
-[Oprah Winfrey's MasterClass](https://github.com/Victor-Chinewubeze/Motivational-Quotes/blob/master/Oprah%20Winfrey.MD#oprah-winfreys-masterclass "Oprah Winfrey's MasterClass")
+[Do not fear failure but please be terrified of regret - Deshauna Barber](https://github.com/Victor-Chinewubeze/Motivational-Quotes/blob/master/Deshauna%20Barber.md#deshauna-barbers-speech "Do not fear failure but please be terrified of regret - Deshauna Barber")  
+[Oprah Winfrey's MasterClass](https://github.com/Victor-Chinewubeze/Motivational-Quotes/blob/master/Oprah%20Winfrey.md#oprah-winfreys-masterclass "Oprah Winfrey's MasterClass")
