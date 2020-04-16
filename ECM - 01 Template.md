@@ -3,7 +3,7 @@
 ---
 ## Title of the video
 
-**1. Point 1 - Speaker**
+**1. Point 1 - Speaker**  
 Content 1
 
 **2. Point 2 - Speaker**  
