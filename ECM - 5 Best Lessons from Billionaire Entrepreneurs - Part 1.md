@@ -1,7 +1,7 @@
 ## Evan Carmichael Series
 
 ---
-## 5 Best Lessons from Billionaire Entrepreneurs
+## 5 Best Lessons from Billionaire Entrepreneurs - Part 1
 
 **1. Act Despite Fear - Elon Musk**  
 There are just times when something is important enough and you believe in it enough that you do it in spite of fear. 
