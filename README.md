@@ -12,6 +12,7 @@ This is my collection of motivational quotes extracted from motivational videos 
 [5 Pieces of Life-Changing Advice from Robert Kiyosaki](https://github.com/Victor-Chinewubeze/Motivational-Quotes/blob/master/ECM%20-%205%20Pieces%20of%20Life-Changing%20Advice%20from%20Robert%20Kiyosaki.md#5-pieces-of-life-changing-advice-from-robert-kiyosaki "5 Pieces of Life-Changing Advice from Robert Kiyosaki")  
 [6 Best Lessons From Billionaire Entrepreneurs](https://github.com/Victor-Chinewubeze/Motivational-Quotes/blob/master/ECM%20-%206%20Best%20Lessons%20From%20Billionaire%20Entrepreneurs.md#6-best-lessons-from-billionaire-entrepreneurs "6 Best Lessons From Billionaire Entrepreneurs")   
 [6 Pieces of Life Changing Advice from Mark Cuban](https://github.com/Victor-Chinewubeze/Motivational-Quotes/blob/master/ECM%20-%206%20Pieces%20of%20Life%20Changing%20Advice%20from%20Mark%20Cuban.md#6-pieces-of-life-changing-advice-from-mark-cuban "6 Pieces of Life Changing Advice from Mark Cuban")  
+[7 Amazing Habits You Must Adopt in 2020](https://github.com/Victor-Chinewubeze/Motivational-Quotes/blob/master/ECM%20-%207%20Amazing%20Habits%20You%20Must%20Adopt%20in%202020.md#7-amazing-habits-you-must-adopt-in-2020 "7 Amazing Habits You Must Adopt in 2020")  
 
 ---
 
