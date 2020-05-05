@@ -1,7 +1,7 @@
 ## Evan Carmichael Series
 
 ---
-## 7 Best Lessons from Billionaire Entrepreneurs
+## 7 Best Lessons from Billionaire Entrepreneurs - Part 1
 
 **1. Don't Fear Fear Too Much - Elon Musk**  
 If you studied Engineering and figured out how to design new things, then it's relatively easy to start a company. You just need to get a few like minded people with you and focus on creating a prototype as soon as possible which you can take to Venture Capitalists and Investors.
