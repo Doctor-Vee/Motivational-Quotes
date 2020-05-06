@@ -36,4 +36,4 @@ There's actually a lot of data on this that Companies that get started with more
 ---
 ### Bonus clip
 **Fight For Opportunities - Mark Cuban**  
-*Told the story of how he was fired by Michael Humecki and went on to start his company Micro Solutions after asking for $500 from a company that needed a software which he promised that he could build. He kept reinvesting in his company and was able to build it to the point that it was generating $36 million revenue before selling it*
+*Told the story of how he was fired by Michael Humecki and went on to start his company Micro Solutions after asking for $500 from a company that needed a software which he promised that he could build. He kept reinvesting in his company and was able to build it to the point that it was generating $36 million revenue before selling it.*
