@@ -23,7 +23,7 @@ I've had bad teachers as well as good teachers... That's part of real life. Ther
 My mistakes have been very good for me because I've learnt from them.
 
 ---
-### 3 Point landing questions
+### 3 Point landing questions  
 1. Who do you need to stop hanging out with?
 2. What's one small test on an idea that you can try this week?
 3. What will you commit to learn to improve yourself this month?
