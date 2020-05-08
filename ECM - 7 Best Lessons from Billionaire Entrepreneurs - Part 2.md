@@ -4,7 +4,7 @@
 ## 7 Best Lessons from Billionaire Entrepreneurs - Part 2
 
 **1. Be Open & Vulnerable - Oprah Winfrey**  
-There is no story that anybocy has ever heard that somebody else hasn't experienced. All pain is the same and the common denominator in the human experience is our emotions and our feelings and the more vulnerable and open you're willing to be with your story, the more actual understanding you create with other people and the more powerful you become.  
+There is no story that anybody has ever heard that somebody else hasn't experienced. All pain is the same and the common denominator in the human experience is our emotions and our feelings and the more vulnerable and open you're willing to be with your story, the more actual understanding you create with other people and the more powerful you become.  
 People don't think less of you for sharing your story. They think more of you for having the courage to share it.
 
 **2. Take Risks - Elon Musk**  
