@@ -15,6 +15,7 @@ This is my collection of motivational quotes extracted from motivational videos 
 [7 Amazing Habits You Must Adopt in 2020](https://github.com/Victor-Chinewubeze/Motivational-Quotes/blob/master/ECM%20-%207%20Amazing%20Habits%20You%20Must%20Adopt%20in%202020.md#7-amazing-habits-you-must-adopt-in-2020 "7 Amazing Habits You Must Adopt in 2020")  
 [7 Best Lessons from Billionaire Entrepreneurs - Part 1](https://github.com/Victor-Chinewubeze/Motivational-Quotes/blob/master/ECM%20-%207%20Best%20Lessons%20from%20Billionaire%20Entrepreneurs%20-%20Part%201.md#7-best-lessons-from-billionaire-entrepreneurs---part-1 "7 Best Lessons from Billionaire Entrepreneurs - Part 1")  
 [7 Best Lessons from Billionaire Entrepreneurs - Part 2](https://github.com/Victor-Chinewubeze/Motivational-Quotes/blob/master/ECM%20-%207%20Best%20Lessons%20from%20Billionaire%20Entrepreneurs%20-%20Part%202.md#7-best-lessons-from-billionaire-entrepreneurs---part-2 "7 Best Lessons from Billionaire Entrepreneurs - Part 2")
+[7 Best Lessons from Billionaire Entrepreneurs - Part 3](https://github.com/Victor-Chinewubeze/Motivational-Quotes/blob/master/ECM%20-%207%20Best%20Lessons%20from%20Billionaire%20Entrepreneurs%20-%20Part%203.md#7-best-lessons-from-billionaire-entrepreneurs---part-3 "7 Best Lessons from Billionaire Entrepreneurs - Part 3")
 
 
 ---
