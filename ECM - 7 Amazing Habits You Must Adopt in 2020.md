@@ -20,7 +20,7 @@ Reading is the strongest signal for success. When you are a great reader, you ca
 Many people say complain about how much time they have... Many of them don't have time because they don't beat the sun up. Get started early.
 
 **6. Push yourself - Dan Lok**  
-Take a moment and imagine that you all the things that you currently have in your life. Also imagine the things that you wish to have but don't currently have.
+Take a moment and imagine all the things that you currently have in your life. Also imagine the things that you wish to have but don't currently have.
 Everything you have currently are things that are within your comfort zone and your comfort zone is more or less your income zone. The things you don't have are outside your comfort zone.
 In order to get what you want but don't have in life, you have to stretch or expand your comfort zone.  
 I believe that the number one habit that you need to be successful is to **do things that make you feel uncomfortable on a daily basis.**  
