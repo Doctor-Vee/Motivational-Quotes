@@ -19,8 +19,7 @@ I don't regard what I do as the most important think in the world but it's right
 
 **4. Experiment More - Jeff Bezos**  
 You cannot invent in pioneer if you cannot accept failure. To invent, you need to experiment. If you know in advance that it's going to work, it is not an experiment. Failure and invention are inseparable twins. It's embarrasing to fail but the truth is, the time you succeed can be highly rewarding. The payoff can be very asymmetric which is why you should do so much experimentation.  
-The success of baseball is capped at 4 runs but in business, every once in a while, you step up your play and you hit the ball so hard that you can get a thousand runs. This encourages you to experiment more.  
-It's the right business decision to experiment more and it's also better for your customers.
+The success of baseball is capped at 4 runs but in business, every once in a while, you step up your play and you hit the ball so hard that you can get a thousand runs. This encourages you to experiment more. It's the right business decision to experiment more and it's also better for your customers.
 
 **5. Get Used to Being Challenged - Jack Ma**  
 People like us are used to criticisms. We're used to getting NOs from people. As an entrepreneur, you have to get used to being challenged.
