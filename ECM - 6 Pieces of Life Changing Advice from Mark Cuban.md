@@ -9,7 +9,7 @@ We all get that feeling of tenseness and stress at various points in time that w
 If you reduce the stress of people and you're nice, you're gonna have such a huge advantage, no matter what your technology is. Your culture will come through.
 
 **2. Take Risks**  
-Sometimes, we feel comfortable with our current situation and may not be willing to take a risk especially if it can affect what we currently have.
+Sometimes, we feel comfortable with our current situation and may not be willing to take a risk especially if it can affect what we currently have. 
 
 **3. Outwork Everyone**  
 Most people do a lot of talking and don't put in the effort. There's nothing you can't accomplish in life with the right amount of work. The challenge is "Are you willing to do the work?" but the reality is... Most people aren't. But that's the opportunity.  
