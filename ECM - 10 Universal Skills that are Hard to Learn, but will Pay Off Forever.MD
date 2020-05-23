@@ -22,31 +22,26 @@ The fact of the matter is **You've got to become a better persuader.**
 It takes 3 qualities essentially to do well. It takes Intelligence, Energy and Integrity. We'd rather hire someone that is dumb and lazy but has integrity than hire someone that has intelligence and energy but lacks integrity.  
 Integrity is an option. You may not be able to do some things but you can choose where you stand on the integrity scale.
 
+**6. Develop Discipline**  
+Every morning, I go for a run. I haven't taken a day off since December 2016. Also, I stretch out everyday for about 2 to 3 hours. I've missed 2 days in about 5 and half or 6 years. This is how I build self discipline.
 
----------------------- CONTINUE FROM HERE ---------------------------
+**7. Be A Great Reader**  
+Reading is the strongest signal for success in the future that I've ever seen. When you are a great reader, you can articulate, speak and command the English language in ways that people cannot and that makes people think that you're a lot smarter than you are. Have you ever met a person who was a great reader when they were young who was not successful? 
 
+**8. Don't Over-value Your Time - Gary Vaynerchuk**  
+You need less audacity about saying NO to things all because you claim that it's not worth your time. You need more tasting. If you try our something for a while and in the long run you discover that it's not worth your time, it's better off than not trying it out at all. I know when to say NO after I've said YES and realise after tasting it that it's NO
 
-**3. Point 3 - Speaker**  
-Content 3
+**9. Don't Waste Money - Mark Cuban**  
+When starting up a business, be careful as to how you spend money ... Don't go about printing unnecessary logos, making T-shirts, etc. Put your money where you're able to differentiate yourself and add value that separates you so you can get ahead. Don't waste it.
 
-**2. Point 2 - Speaker**  
-Content 2
-
-**3. Point 3 - Speaker**  
-Content 3
-
-**2. Point 2 - Speaker**  
-Content 2
-
-**3. Point 3 - Speaker**  
-Content 3
+**10. Develop Communication Skills - Grant Cardone**  
+Communication, knocking on doors, talking to people, ability to sell to people, etc are part of the most important skills which we're not taught in schools and is part of the reason why the school system is failing.
 
 ---
 ### 3 Point landing questions
-1. Question 1?
-2. Question 2?
-3. Question 3?
+1. What will you do this week to improve your communication skills?
+2. Where do you need to stop wasting money?
+3. What new book can you pick up and start reading today?
 ---
 ### Bonus clip
-**Title - Speaker**  
-The content
+**Become Charismatic - Barack Obama**  
