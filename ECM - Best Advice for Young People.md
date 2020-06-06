@@ -19,7 +19,7 @@ I didn't find my passion until long after college. I spent time in school chasin
 I finally asked myself some big questions, simple questions: "What did I want out of my life?", "What makes me happy?", "What do I care about?"
 Soon, I realised that what I really wanted was pretty simple. I wanted to give back to the people around me, to the world around me. I wanted to live my life by the principle "To whom much is given, much is expected"
 That led me to quit that fancy job and since then, I've dedicated my life to giving back.
-Do not waste a minute living someone else's dream. Each of us has unique gifts but it takes a lot of work, a lot a real work to discover what brings you joy. It just doesn't happen. It requires you spending some time and you won't find what you love simply by checking boxes or padding your GPA. 
+**Do not waste a minute living someone else's dream.** Each of us has unique gifts but it takes a lot of work, a lot a real work to discover what brings you joy. It just doesn't happen. It requires you spending some time and you won't find what you love simply by checking boxes or padding your GPA. 
 You won't figure it out only by listening to your guidance counselor, your friends or even your parents.  
 You can only find your passion by looking inside yourself.
 
