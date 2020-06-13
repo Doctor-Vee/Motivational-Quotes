@@ -19,7 +19,7 @@ This is my collection of motivational quotes extracted from motivational videos 
 [10 Universal Skills that are Hard to Learn, but will Pay Off Forever](https://github.com/Victor-Chinewubeze/Motivational-Quotes/blob/master/ECM%20-%2010%20Universal%20Skills%20that%20are%20Hard%20to%20Learn,%20but%20will%20Pay%20Off%20Forever.MD#10-universal-skills-that-are-hard-to-learn-but-will-pay-off-forever "10 Universal Skills that are Hard to Learn, but will Pay Off Forever")  
 [Oprah Winfrey's 10 Rules for Success Vol 6](https://github.com/Victor-Chinewubeze/Motivational-Quotes/blob/master/ECM%20-%20Oprah%20Winfrey's%2010%20Rules%20for%20Success%20Vol%206.md#oprah-winfreys-10-rules-for-success-vol-6 "Oprah Winfrey's 10 Rules for Success Vol 6")  
 [Best Advice for Young People](https://github.com/Victor-Chinewubeze/Motivational-Quotes/blob/master/ECM%20-%20Best%20Advice%20for%20Young%20People.md#best-advice-for-young-people "Best Advice for Young People")  
-[Best Routines and Habits for Success --- CONTINUE HERE --- ]( "Best Routines and Habits for Success")
+[Best Routines and Habits for Success --- INCOMPLETE --- ]( "Best Routines and Habits for Success")
 
 ---
 
