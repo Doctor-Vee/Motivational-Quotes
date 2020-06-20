@@ -37,8 +37,6 @@ What do you do before you go to sleep at night? What you do before sleeping can 
 The best way to wake up without anxiety is to prepare to go to bed. Stop working at least half an hour before you go to sleep. Turn off your email, don't go to social media. Completely shut off, take a shower, take a deep breathing exercise while sitting at the edge of your bed, keeping your spine straight and your head nicely balanced. If you consistently do this every night before going to sleep, you'll start having good deep restful sleep without waking up anxious.
 
 
-------------------CONTINUE HERE ----------
----
 ### 3 Point landing questions
 1. What will be your evening routine tonight?
 2. How will you prime yourself tomorrow motning?
