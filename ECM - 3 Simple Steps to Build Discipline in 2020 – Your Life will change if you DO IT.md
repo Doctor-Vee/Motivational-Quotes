@@ -4,7 +4,7 @@
 ## 3 Simple Steps to Build Discipline in 2020 – Your Life will change if you DO IT
 
 **1. Have a strict sleep schedule – Jocko Willink**  
-Always wake up early in the morning. Avoid the snooze button
+Always wake up early in the morning. Avoid the snooze button. The most important thing is to set a good wake up time that works for you where you get enough sleep and then wake up that time everyday
 
 **2. Do the thing you hate to do first – Marisa Peer**   
 When you do, you’ll feel like a winner and you’ll be happy with yourself. People with discipline do what they don’t want to do first. With time, those things that you’re scared of doing become easy for you to do.
