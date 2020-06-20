@@ -25,13 +25,25 @@ This is also when you can build intimacy and fluency with what you wanna stand f
 5:40 - 6:00 - **Grow.** If you look at the greatest billionaires and producers on the planet, they have one thing in common. They are ridiculously curious, no matter how much money they make or impact they have. One of the keys to epic performance is a relentless commitment to daily growth.
 You've got to get those mornings calibrated if you really wanna win.
 
+**4. Prime Yourself - Tony Robbins**  
+The very first thing I do when I wake up in the morning is to get my head right. I do this thing called "priming". It's about putting yourself in a state where your mind and body will respond accordingly. It's done in three steps.
+1. Take your hands up as you breathe in and bring it down as you breathe out explosively. Do it for like 10 times.
+2. Have your hands open on your lap, let your body deeply relax and take in whatever you feel. Now begin to think of a moment in your life you could feel really grateful. Do your best to remember it and step into it as if you were there, hearing and feeling what you felt then. Savour it. Maximise that sense of appreciation or enjoyment or gratitude. Enjoy it. Feel it. Fill up with it.
+3. Now, focus on 3 things that you want to achieve and accomplish, one at a time. Live it, feel it and experience it.
+I start my day with this base. I'm gonna live from gratitude today, I'm gonna live from blessing - I'm gonna be a blessing in people's lives today. I'm gonna get stronger today and I'm gonna achieve what I'm here and committed to do
+
+**5. Have a good evening routine - Dandapani**  
+What do you do before you go to sleep at night? What you do before sleeping can make you have either a peaceful or restless sleep and a restless sleep can lead you to anxiety and stress when you wake up. 
+The best way to wake up without anxiety is to prepare to go to bed. Stop working at least half an hour before you go to sleep. Turn off your email, don't go to social media. Completely shut off, take a shower, take a deep breathing exercise while sitting at the edge of your bed, keeping your spine straight and your head nicely balanced. If you consistently do this every night before going to sleep, you'll start having good deep restful sleep without waking up anxious.
+
+
 ------------------CONTINUE HERE ----------
 ---
 ### 3 Point landing questions
-1. Question 1?
-2. Question 2?
-3. Question 3?
+1. What will be your evening routine tonight?
+2. How will you prime yourself tomorrow motning?
+3. How can you use the 20/20/20 formula?
 ---
 ### Bonus clip
-**Title - Speaker**  
-The content
+**Have a Strict Sleeping Schedule - Jocko Willink**  
+Always wake up early in the morning. Avoid the snooze button. The most important thing is to set a good wake up time that works for you where you get enough sleep and then wake up that time everyday
